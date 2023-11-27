@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ziakara! I'm a student at Columbia University studying Computer Science with a minor in Women and Gender Studies.
+- 👋 Hi, I’m @ziakara! I'm a senior at Columbia University studying Computer Science with a minor in Women and Gender Studies.
 - 👀 I’m interested in everything tech, finance, and entrepeneurship!
 - 🍃 Some of my hobbies include tennis, skincare, and beauty. I'm also a big gym bro! 😅
 - 💞️ Fun fact, I opened my own business when I was 17! I’m currently creating my own personal website!
